@@ -1,4 +1,4 @@
-# 
+# Profesional uniswap trading bot plugins for Mac OS | VIP uniswap trading bot plugins for PC Windows. Featuring estrategia de reversión a la media and análisis de momento — optimized for maximum performance.
 
 
 
